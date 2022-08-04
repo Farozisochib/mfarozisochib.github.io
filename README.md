@@ -1,1 +1,0 @@
-# farozi.belajar.github.io
